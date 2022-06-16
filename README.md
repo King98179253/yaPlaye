@@ -26,4 +26,4 @@
 #### Copy Pasters You Can Copy This But Must Give Credits ...
 
 ### Owner Of This Repository
-[![Aditya Halder]𝐌𝐑_𝐁𝐇𝐀𝐓𝐀𝐊𝐓𝐈)](https://t.me/AdityaHalder)
+[(𝐌𝐑_𝐁𝐇𝐀𝐓𝐀𝐊𝐓𝐈)](https://t.me/GIRLS_CRUSH_OUT_OF_RANGE)
